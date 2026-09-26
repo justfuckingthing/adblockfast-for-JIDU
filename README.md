@@ -1,0 +1,1 @@
+# adblockfast-for-JIDU
